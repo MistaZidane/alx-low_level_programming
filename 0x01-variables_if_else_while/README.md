@@ -1,3 +1,1 @@
-Variables 
-If 
-While
+I love Cameroon
